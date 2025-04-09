@@ -1,1 +1,1 @@
-https:files.catcbox.moe/gofpu9.jpg
+https://files.catcbox.moe/gofpu9.jpg
